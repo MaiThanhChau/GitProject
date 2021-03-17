@@ -1,1 +1,0 @@
-Mai Thanh Châu
